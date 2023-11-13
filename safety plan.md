@@ -20,7 +20,7 @@
 
 ### 4. Supportive People
 - Occy
-- Mom
+- Mom & Dad
 - Io
 
 ### 5. Professionals
